@@ -1,4 +1,4 @@
-<img src="https://github.com/SlL3NTS4LT/SlL3NTS4LT/blob/56083fd94bdd5760a2ab9d6e18672ce0cdaf33f4/silent%20salt.webp" alt="silent salt cookie">
+<img src="[https://github.com/SlL3NTS4LT/SlL3NTS4LT/blob/56083fd94bdd5760a2ab9d6e18672ce0cdaf33f4/silent%20salt.webp](https://github.com/SlL3NTS4LT/SlL3NTS4LT/blob/a99da14c07478b326c16f6bc95221b1c7995ac69/ssc%20gif.gif)" alt="silent salt cookie">
 
 silent salt fan wooo yayaaayaya im gonna die
 
