@@ -4,4 +4,4 @@ silent salt fan wooo yayaaayaya im gonna die
 
 crk acc : Technicolor
 
-<a href="https://kascamazotz.straw.page" target="_blank">strawpage</a><a href="https://shotgunnur.atabook.org" target="_blank">atabook</a>
+<a href="https://kascamazotz.straw.page" target="_blank">strawpage</a> <a href="https://shotgunnur.atabook.org" target="_blank">atabook</a>
